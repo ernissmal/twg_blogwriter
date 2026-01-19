@@ -32,9 +32,9 @@ Unlike dining tables, where rectangular is the default and other shapes are vari
 
 **Square coffee tables** suit smaller spaces or sectional sofas where you're sitting on multiple sides. They're democratic—no long side, no short side, everyone has equal access. They also work well in rooms where the furniture arrangement is more circular or informal.
 
-**Round and oval coffee tables** are underrated. They soften a room full of angular furniture. There are no corners to bump into, which matters if you have young children or a tight floor plan. They encourage movement around the room because there's no "correct" side to walk on.
+**Round coffee tables** are underrated. They soften a room full of angular furniture. There are no corners to bump into, which matters if you have young children or a tight floor plan. They encourage movement around the room because there's no "correct" side to walk on.
 
-**Irregular or organic shapes** can work in the right setting, but they're risky. Make sure the shape has a reason, not just novelty.
+**Pillow-shaped coffee tables** are something a bit different—four gently curved sides that bow outward, like a square that's been softly inflated. It's a contemporary look that's softer than rectangular but more structured than round. Worth considering if you want something distinctive.
 
 ## The solid oak difference
 

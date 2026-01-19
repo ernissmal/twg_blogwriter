@@ -56,7 +56,7 @@ Different table types suit different shapes for practical reasons.
 
 **Desks** follow similar logic. You sit on one side, your work spreads across the surface, and rectangular gives you the most usable space. Live edge desks are popular with people who want their workspace to feel less corporate—the natural edge is a daily reminder that this isn't a cubicle.
 
-**Coffee tables** have more freedom. Round works beautifully. Pillow offers something different. Rectangular and live edge both function well. The choice here is more about aesthetic preference and room layout than strict practicality.
+**Coffee tables** have the most freedom. Round works beautifully for social spaces. Pillow offers something distinctive. We also have straight edge and live edge rectangular options. The choice here is more about aesthetic preference and room layout than strict practicality.
 
 ## The honest truth about choice
 
