@@ -1,121 +1,75 @@
-# The Case for Round Tables (And When Rectangular Is Still Better)
+# Straight Edge, Live Edge, Round, and Pillow: Choosing the Right Shape
 
-Most tables are rectangular. It's so standard that when someone says "table," you probably picture four straight sides and four corners without even thinking about it. Rectangular tables are the default, and defaults exist for good reasons.
+When you're shopping for a table, the first question is usually size. But shape matters just as much—maybe more. The shape you choose affects how the table fits your room, how it looks in your space, and honestly, how it feels to use every day.
 
-But round tables aren't just a quirky alternative. For certain rooms, certain uses, and certain households, they're genuinely the better choice. We make plenty of both, and we've learned when to recommend each.
+We make tables in several shapes, each with its own purpose. Let's go through them properly.
 
-Let's talk about shape.
+## The rectangular classics
 
-## Why rectangular became the standard
+Most tables are rectangular. There's nothing wrong with that—it's the standard for good reasons. Rectangular tables fit rectangular rooms. They scale up easily for more seating. They push against walls when needed. The geometry just works.
 
-Rectangular tables dominate because they solve practical problems efficiently.
+For dining tables and desks, rectangular is what we make. But within that category, there's a choice that changes everything: the edge.
 
-Rooms are usually rectangular. Walls are straight. A rectangular table fits naturally against a wall, into a corner, or parallel to the other furniture in a room. The geometry matches.
+### Straight edge
 
-Rectangular tables scale up easily. Need to seat more people? Make the table longer. A rectangular table for four becomes a table for six becomes a table for eight just by extending one dimension. The form remains the same, just stretched.
+A straight edge table has clean, uniform sides cut to a consistent line. It's the conventional choice, and conventional isn't a criticism. Straight edges are timeless. They fit into any interior style without demanding attention. They're predictable in the best sense—you know exactly what you're getting.
 
-Manufacturing rectangles is straightforward. Straight cuts, right angles, standard joinery. This doesn't mean rectangular tables are easy to make well—they're not—but the geometry doesn't add complexity.
+If you're furnishing a home with mixed furniture, different styles accumulated over years, a straight edge table won't clash with anything. It's a background piece in the sense that it does its job without shouting about it.
 
-And rectangular tables feel orderly. There's a clear head, a clear foot, defined sides. Everyone knows where they're sitting and who's across from them. For formal dining, for business meetings, for situations where hierarchy matters, rectangular delivers clarity.
+Straight edge is also practical. The uniform width means every seat has the same amount of space. Planning your room layout is straightforward because the dimensions are consistent.
 
-These are real advantages. For many homes and most dining rooms, rectangular is the right choice. We're not here to argue against it.
+### Live edge
 
-But.
+Live edge keeps the natural contour of the tree along one or both sides of the table. Where the bark used to be, you get an organic, undulating line that no factory could produce. No two live edge tables are identical—each one reflects the specific tree it came from.
 
-## What round tables offer
+This is a statement piece. Live edge demands attention and becomes a focal point in any room. It suits homes with a natural, relaxed aesthetic. It pairs well with industrial elements, with plants, with spaces that embrace imperfection.
 
-A round table creates different dynamics. Some of those differences are practical. Some are more subtle. All of them are worth considering.
+Live edge isn't for everyone. If you prefer things orderly and symmetrical, the irregular edge might bother you. And the varying width means some seats have slightly more or less table space than others. These aren't problems, just characteristics to consider.
 
-**No head of the table.** At a round table, every seat is equivalent. There's no position of authority, no "best" chair. This changes how conversations flow. There's no presiding over a round table—there's only participating.
+We offer live edge for dining tables, desks, and some coffee tables. If you're drawn to it, trust that instinct. The tables have genuine presence.
 
-For family dinners, this is often what people actually want. Nobody's in charge. Everyone's equally present. The shape encourages equality in a way that rectangular resists.
+## Round coffee tables
 
-**Easier conversation.** At a round table, you can see everyone without turning your head dramatically. You can make eye contact with anyone. Cross-table conversations happen naturally because everyone's roughly the same distance from everyone else.
+Round tables work differently than rectangular ones, and coffee tables are where that difference shines.
 
-A rectangular table for eight means the people at opposite corners are far apart, essentially at separate conversations. A round table for eight keeps everyone within comfortable speaking distance.
+A round coffee table has no corners. This sounds obvious, but the implications are real. No corners means easier navigation around your living room, especially in tight spaces. No corners means nothing for toddlers to run into at forehead height. No corners means a softer visual presence in a room full of angular sofas and shelving.
 
-**No corners.** This matters more than people expect. Corners take up visual space and physical space. They catch hips when you're walking past. They're exactly where toddlers' foreheads are when they're learning to walk.
+Round also creates different social dynamics. There's no "head" of a round table—everyone gathered around it is equal. For a coffee table, where people sit facing each other across the sofa arrangement, this feels natural.
 
-Round tables are easier to navigate around, easier to slide past in a tight dining room, and less dangerous for small children. The same footprint feels more spacious because there's nothing jutting out.
+The main consideration with round is size. A round table takes up more floor space than a rectangular table of similar surface area, because the circle extends equally in all directions. Measure your space carefully and make sure you can walk around it comfortably.
 
-**Fits square rooms better.** If your dining area is square rather than rectangular—which many open-plan apartments and eat-in kitchens are—a round table often makes more sense than a rectangular one. It uses the space more naturally and leaves even walkways on all sides.
+## The pillow shape
 
-## The capacity question
+This is one of our more distinctive offerings, and it deserves explanation.
 
-Here's where round tables have a genuine disadvantage: they don't scale as efficiently as rectangular ones.
+A pillow-shaped coffee table has four curved sides that bow outward, like a square that's been gently inflated. It's softer than a rectangle but more structured than a circle. The corners exist but they're rounded rather than sharp.
 
-A round table needs to be quite large to seat many people. To comfortably seat six, you need a table about 130cm in diameter. For eight, you're looking at 150cm or more. A round table for ten is around 180cm across—that's a lot of table, taking up a lot of room.
+Pillow shape offers an interesting middle ground. You get more surface area than a circle of similar footprint, but without the hard corners of a rectangle. It reads as contemporary without being stark. It's different enough to be interesting, familiar enough not to feel strange.
 
-And there's a practical limit. Once a round table gets past a certain size, the person across from you is too far away for comfortable conversation. The very advantage of the shape starts to disappear.
+If you're drawn to something that's not quite traditional but not aggressively modern either, pillow might be worth considering. It works particularly well in living rooms with curved sofas or rounded armchairs—it picks up those shapes without copying them.
 
-For regular dinner parties of eight or more, rectangular is probably still your answer. Round tables shine for smaller gatherings—four to six people is the sweet spot.
+## Matching shape to purpose
 
-## Oval: the compromise that actually works
+Different table types suit different shapes for practical reasons.
 
-Oval tables try to combine the best of both worlds, and honestly, they often succeed.
+**Dining tables** are almost always rectangular because that's what dining rooms are. You need to seat multiple people along the sides, and rectangular makes this efficient. Live edge adds character; straight edge keeps things calm.
 
-An oval has no sharp corners, so you get the soft, easy-to-navigate shape of a round table. But it extends in one direction, so you get the capacity of a rectangular table. You can seat eight around an oval more easily than around a circle, and you don't lose the sense of everyone being at one table together.
+**Desks** follow similar logic. You sit on one side, your work spreads across the surface, and rectangular gives you the most usable space. Live edge desks are popular with people who want their workspace to feel less corporate—the natural edge is a daily reminder that this isn't a cubicle.
 
-Ovals also fit rectangular rooms better than circles do. A long, narrow dining room that would make a round table look lost can handle an oval beautifully.
+**Coffee tables** have more freedom. Round works beautifully. Pillow offers something different. Rectangular and live edge both function well. The choice here is more about aesthetic preference and room layout than strict practicality.
 
-The one consideration: oval tables don't have a clear head either. If you want that formal position of authority—if Sunday roast means grandfather carving at the head of the table—an oval might feel too casual. But for most families, most of the time, this is fine.
+## The honest truth about choice
 
-We make a lot of oval tables. More than you'd expect, probably. Once people consider them seriously, they often realize it's exactly what their space needed.
+We could tell you that one shape is objectively better than another, but that wouldn't be true. Shape is personal. It depends on your room, your existing furniture, your taste, and how you actually use the piece.
 
-## How to choose
+What we can tell you is this: all our tables are built the same way regardless of shape. Solid oak throughout. Proper construction. Built to last decades and be refinished when needed.
 
-Here's a simple framework.
+The shape determines how it looks and fits your space. The material and construction determine how long it lasts and how well it ages. We've got the second part covered. The first part is your call.
 
-**Choose rectangular if:**
-- Your room is long and narrow
-- You regularly seat more than six people
-- You want a clear head-of-table position
-- Your furniture is mostly angular and you want the table to match
-- You need to push the table against a wall sometimes
+## A practical suggestion
 
-**Choose round if:**
-- Your room is square or near-square
-- You typically seat four to six people
-- You want conversation to flow freely
-- You have small children (no corners)
-- You want the room to feel less formal
+If you're uncertain about shape, try this: cut paper or newspaper to the approximate footprint of each option you're considering. Lay them on the floor where the table would go. Live with them for a few days. Walk around them. See which one feels right in the space.
 
-**Choose oval if:**
-- You want the softness of round with the capacity of rectangular
-- Your room is moderately rectangular but not extremely long
-- You like the idea of no defined head
-- You want something that feels a bit different
+It sounds simple, almost silly. But furniture is physical. It takes up room. The only way to really know if a shape works is to see it in context, even if that context is just paper on the floor.
 
-There's no wrong answer. All three shapes work well in the right context. The question is which context is yours.
-
-## Solid oak in the round
-
-Making a round or oval table from solid wood is more demanding than making a rectangular one. The curves require different techniques—you can't just make straight cuts and right-angle joints. There's more waste from the boards. More skill involved in getting the edge smooth and consistent.
-
-But the result is worth it. The grain of oak wrapping around a curved edge has a flow that flat-sided tables lack. The eye follows the wood around the table in a way that feels natural and complete.
-
-And from a structural standpoint, round and oval tables in solid oak are incredibly stable. Without corners to catch or edges to warp unevenly, they maintain their shape beautifully over years and decades.
-
-The pedestal bases we use for many round tables create maximum legroom. There's nothing at the perimeter to interfere with chairs—everyone can pull in close and sit comfortably. It's one of the underrated advantages of going round.
-
-## Living with curves
-
-A round table changes a room's feel more than you might expect. Rooms full of straight lines and right angles read as formal and ordered. Introduce a circle and the energy shifts slightly. Things feel more relaxed, more conversational.
-
-This isn't better or worse—it depends entirely on what you want your dining room to be. Some homes call for ceremony. Others call for comfort. The shape of your table contributes to that atmosphere more than almost any other piece of furniture.
-
-If you're uncertain, think about the meals you actually have. Are they leisurely, conversational, everyone-talking-at-once affairs? Round might suit you. Are they more structured, guests-on-best-behavior occasions? Rectangular might be more appropriate.
-
-Or just go with your gut. Furniture shouldn't require analysis. If you're drawn to round, there's probably a reason. Trust it.
-
-## Our recommendation
-
-We've been making tables long enough to have developed opinions, so here's ours:
-
-For most families, in most homes, with typical dining rooms and typical use patterns, an oval or round table deserves more consideration than it usually gets. The advantages are real, and the disadvantages are manageable for groups of six or fewer.
-
-If you're replacing a rectangular table and have never considered an alternative, at least think about it. Mock up the footprint with newspaper on the floor. Imagine walking around it. Picture your usual dinner guests seated at it.
-
-You might decide rectangular is still right. That's fine—we make plenty of those, and they're excellent tables. But you might also realize that the conventional choice isn't automatically the best choice.
-
-Either way, we're here to make whatever shape you decide on. Solid oak, proper construction, built to last decades. The geometry is up to you.
+We're happy to discuss dimensions, proportions, and what we'd recommend for specific situations. But ultimately, you're the one who'll live with the table. Your instinct about what belongs in your home is probably right.

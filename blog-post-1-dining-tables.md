@@ -24,15 +24,15 @@ And here's something people often forget: the table's width matters too. Standar
 
 ## The shape question
 
-Rectangular tables are the classic choice, and for good reason. They're efficient with space, work well in most rooms, and scale up easily for larger gatherings. If you have a long, narrow dining room, rectangular is almost certainly your answer.
+Rectangular tables are the classic choice for dining, and for good reason. They're efficient with space, work well in most rooms, and scale up easily for larger gatherings. If you have a long, narrow dining room, rectangular is almost certainly your answer.
 
-But don't dismiss other options without consideration.
+We offer two edge styles that change the character significantly:
 
-Oval tables have the same capacity as rectangular ones but feel softer in a room. There are no sharp corners to navigate around, which matters if your dining area is tight or if small children are part of the household. The curved edges also encourage a more inclusive conversation since there's no clear "head" of the table.
+**Straight edge** tables have clean, uniform sides. They're classic, predictable in the best way, and fit naturally into most interiors. If you want something timeless that won't clash with whatever furniture you buy next, straight edge is the safe choice.
 
-Square tables work beautifully for four people. There's an intimacy to a square table that rectangular ones don't quite achieve. Everyone is the same distance from everyone else. For couples or small families who rarely host large dinners, a square table might be perfect.
+**Live edge** tables keep the natural contour of the tree along one or both sides. No two are identical. The organic shape adds character and makes each table genuinely one-of-a-kind. Live edge suits homes with a more relaxed, natural aesthetic—it's a statement piece rather than a background one.
 
-Round tables are their own category entirely. We'll talk about those separately because they deserve it.
+Both are solid oak throughout. The difference is purely visual, a matter of taste rather than quality.
 
 ## Why oak, specifically
 
